@@ -149,7 +149,7 @@ Kurumsal güvenlik standartları esas alınmıştır.
 Her türlü soru, öneri ve iş birliği için:
 
 📧 **yakup.yildirim@demirotomotiv.com.tr**  
-🌐 **https://demir2.com.tr**
+🌐 **https://demir2.com**
 
 ---
 
